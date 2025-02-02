@@ -3,4 +3,4 @@
 **kasper / dakota** – she he 
 
 [strawpage](https://sigmacheese.straw.page/) ~ [atabook](https://crypticworm.atabook.org/)
-
+i follow people who i think are cool:-)
